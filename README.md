@@ -1,4 +1,4 @@
-### Bem-vindo! Pegue um cafézinho e fique à vontade para dar uma olhada no meu perfil! 👋
+### Olá! Pegue um cafézinho e fique à vontade para dar uma olhada no meu perfil! 👋
 
 <div align="center">
   <a href="https://github.com/gabrielsantana021">
